@@ -1,3 +1,3 @@
-# - [hson ⚠️](https://t.me/S_Y_W)
+# - [Rsu ⚠️](https://t.me/uQuuu)
 
-# - [Source ⚠️](https://t.me/N1111V)
+# - [Source ⚠️](https://t.me/DroxTeAm)
