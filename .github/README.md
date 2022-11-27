@@ -1,3 +1,3 @@
-# - [Rsu ⚠️](https://t.me/uQuuu)
+# - [alsh ⚠️](https://t.me/BGGGBG)
 
-# - [Source ⚠️](https://t.me/DroxTeAm)
+# - [Source ⚠️](https://t.me/UWUWC)
